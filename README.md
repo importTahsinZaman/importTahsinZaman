@@ -1,1 +1,1 @@
-![image](githubbanner2.jpg)
+![image](dripping_face.jpg)
